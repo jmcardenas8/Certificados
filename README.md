@@ -1,2 +1,2 @@
 # Certificados
-En este repositorio se encuentran mis certificados académicos 
+En este repositorio se encuentran algunos de mis certificados académicos curriculares y extracurriculares
